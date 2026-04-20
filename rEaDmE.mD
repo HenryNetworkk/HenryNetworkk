@@ -5,15 +5,15 @@
 
 **☑️ 𝘿𝙄𝙎𝘾𝙊𝙍𝘿 :**   [****𝙘𝙮𝙗𝙚𝙧𝙧𝙥𝙝𝙖𝙣𝙩𝙤𝙢****](https://discord.com/users/208150597508136961)   
 
-**🧠 𝘾𝙍𝙔𝙋𝙏𝙊𝙃𝘼𝘾𝙆 :**  [****𝗛𝗲𝗻𝗿𝘆𝗡𝗲𝘁𝘄𝗼𝗿𝗸****](https://cryptohack.org/user/HenryNetWork/) 
+**🧠 𝘾𝙍𝙔𝙋𝙏𝙊𝙃𝘼𝘾𝙆 :**  [****𝗛𝗲𝗻𝗿𝘆𝗡𝗘𝗧****](https://www.youtube.com/@wakasensei) 
 
 **✅ 𝙏𝙀𝙇𝙀𝙂𝙍𝘼𝙈 :**   [****𝕵𝖚𝖆𝖓 𝕭𝖔𝖑𝖘𝖆****](https://t.me/kingvon008)
 
 **📦 𝙃𝘼𝘾𝙆 𝙏𝙃𝙀 𝘽𝙊𝙓 :** [****𝗛𝗲𝗻𝗿𝘆𝗡𝗲𝘁𝘄𝗼𝗿𝗸 𝟭𝟬𝟬 万请求****](https://profile.hackthebox.com/profile/019d398f-e678-7229-9468-a992214c5177)
 
-****🎶 𝙏𝙄𝙆𝙏𝙊𝙆 :**** [𝗚𝗘𝗡𝗖𝗢](https://www.tiktok.com/@champagnehaki)
+**🎶 𝙏𝙄𝙆𝙏𝙊𝙆 :** [𝗚𝗘𝗡𝗖𝗢](https://www.tiktok.com/@champagnehaki)
 
-****😈 𝙏𝙍𝙔 𝙃𝘼𝘾𝙆 𝙈𝙀 :**** [𝗛𝗲𝗻𝗿𝘆𝗡𝗲𝘁𝘄𝗼𝗿𝗸](https://tryhackme.com/p/HenryNetWork)
+**😈 𝙏𝙍𝙔 𝙃𝘼𝘾𝙆 𝙈𝙀 :** [𝗛𝗲𝗻𝗿𝘆𝗡𝗲𝘁𝘄𝗼𝗿𝗸](https://tryhackme.com/p/HenryNetWork)
 
 <div align="center"></p><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
