@@ -5,7 +5,7 @@
 
 **☑️ 𝘿𝙄𝙎𝘾𝙊𝙍𝘿 :**   [****𝙘𝙮𝙗𝙚𝙧𝙧𝙥𝙝𝙖𝙣𝙩𝙤𝙢****](https://discord.com/users/208150597508136961)   
 
-**🧠 𝘾𝙍𝙔𝙋𝙏𝙊𝙃𝘼𝘾𝙆 :**  [****𝗛𝗲𝗻𝗿𝘆𝗡𝗘𝗧****](https://www.youtube.com/@wakasensei) 
+**📢 𝙔𝙊𝙐𝙏𝙐𝘽𝙀 :**  [****𝗛𝗲𝗻𝗿𝘆𝗡𝗘𝗧****](https://www.youtube.com/@wakasensei) 
 
 **✅ 𝙏𝙀𝙇𝙀𝙂𝙍𝘼𝙈 :**   [****𝕵𝖚𝖆𝖓 𝕭𝖔𝖑𝖘𝖆****](https://t.me/kingvon008)
 
